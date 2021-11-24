@@ -3,5 +3,5 @@
 - 14 Võ Ngọc Gia Hân
 - 37 Đào Ngọc Anh Thư
 - 18 Nguyễn Ngọc Phương Khanh
-- 12 Nguyễn Minh Đức
+- 12 Nguyễn Minh Đức 
 https://hiencaophunhuan.notion.site/
